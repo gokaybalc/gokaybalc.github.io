@@ -1,1 +1,0 @@
-# gokaybalc.github.io
